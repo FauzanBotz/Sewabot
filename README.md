@@ -27,7 +27,6 @@
 # 2 BULAN 15K
 
 # PERMANENT 20K
-                                                                                                                                                    PRICE L   
                                                                                                       
 # PRICE LIST SEWA BOT + PREM                                                                                                      
                                                                                                       
